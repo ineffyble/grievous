@@ -10,3 +10,4 @@ _A collection of public statements related to trans matters in the Victorian Gre
 * 2022-04-06: [STATEMENT FROM THE VICTORIAN GREENS](https://greens.org.au/vic/news/statement-from-the-victorian-greens)
 * 2022-06-14: [STATEMENT FROM AUSTRALIAN GREENS VICTORIA CONVENOR, LINDA GALE](https://greens.org.au/vic/news/statement-from-australian-greens-victoria-convenor-linda-gale)
 * 2023-03-25: [VICTORIAN GREENS CONDEMN ANTI-TRANS AND NAZI RALLY](https://greens.org.au/vic/news/victorian-greens-condemn-anti-trans-and-nazi-rally)
+* 2023-04-21: [VICTORIAN GREENS STRENGTHENS CODE OF CONDUCT](https://greens.org.au/vic/news/victorian-greens-strengthens-code-conduct)
